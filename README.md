@@ -29,6 +29,7 @@ Of de energie groen is
 Heb je eenmaal de aanbiedingen vergeleken? Dan kun je de beste deal voor jouw situatie kiezen. Ben je alleen op zoek naar de laagste prijs? Dan kies je voor de leverancier met de laagste tarieven. Wil je graag groene energie? Dan kies je voor een leverancier die 100% groene energie aanbiedt.
 
 5. Stap 5: Overstappen
+[Energie vergelijken](https://kick.com/r3z0)
 
 Heb je een keuze gemaakt? Dan kun je eenvoudig overstappen naar de nieuwe leverancier. De nieuwe leverancier regelt alles met je oude leverancier. Je hoeft zelf niets te doen.
 
@@ -38,6 +39,8 @@ Naast overstappen naar een andere energieleverancier zijn er nog veel meer manie
 
 Zet de verwarming lager
 Douche korter
+[Energie vergelijken](https://www.twitch.tv/ejabberd/about)
+
 Gebruik spaarlampen of LED-lampen
 Trek de stekker uit apparaten die je niet gebruiken
 Koop energiezuinige apparaten
